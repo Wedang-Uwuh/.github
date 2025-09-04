@@ -9,4 +9,5 @@
 - 👩‍💻 Kalo ada kodingan nganggur taro aja
 - 🍿 Ingfokan warmindo 
 - 👱‍♀️ Butuh Fine Shyt ASAP
+- SI AL GAY
 
